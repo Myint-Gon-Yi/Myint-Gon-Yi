@@ -1,4 +1,4 @@
-# Hi there, I'm Myint Gon Yi! 👋
+# Hi everyone, My name is Myint Gon Yi! 👋
 
 ### Computer Science Student @ San Jose City College 🐆
 
